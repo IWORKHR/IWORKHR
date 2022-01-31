@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @IWORKHR
-- 👀 I’m interested in ofered Jobs /work...
-- 🌱 I’m currently learning aborto selection it
+- 👀 I’m interested in reclutar perfiles para distintosJobs /work...
+- 🌱 I’m currently learning about selection it
 - 💞️ I’m looking to collaborate on human resources
 - 📫 How to reach me : cv@iwhumanresources.com.ar 
 
