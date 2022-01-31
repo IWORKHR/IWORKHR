@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @IWORKHR
-- 👀 I’m interested in reclutar perfiles para distintosJobs /work...
+- 👀 I’m interested in reclutar perfiles para distintos trabajos/empleos/Jobs /work...
 - 🌱 I’m currently learning about selection it
 - 💞️ I’m looking to collaborate on human resources
 - 📫 How to reach me : cv@iwhumanresources.com.ar 
